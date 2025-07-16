@@ -9,4 +9,4 @@
 ✨ **Soft Skills trazidas da minha jornada anterior:** 
 > Resolução de crises, comunicação sob pressão e gestão de processos.
 
-📫 **Conecte-se comigo:** linkedin.com/in/gabriel-aragão-dourado-101649221(link)
+📫 **Conecte-se comigo:** [LinkedIn](linkedin.com/in/gabriel-aragão-dourado-101649221)
